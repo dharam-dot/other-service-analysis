@@ -7,4 +7,4 @@
 | **Incident Status** | Resolved|
 | **Incident Resolution Date** | 24-03-2021 |
 | **Incident Experience** | (Good)    ★★★★☆|
-| **Incident Analysis & Resolution** | As My Last Month daily routine i buy a veg thali from a meal shop on 23 march 2021. after reach my home i starded to eat the rice was smelled so i could not eat it. so next day i went to same meal shop and complaint about rice at the time applolize for his mistake and given me the 50 % discount on my veg thali.
+| **Incident Analysis & Resolution** | As my evening daily routine, I  buyed a veg thali from a meal shop on 23 march 2021. After reaching my home I started to eat the food. i eated the four chapaties. i felt that the rice was uncooked and smelly .So the next day I went to the same meal shop and complained about rice at the time,the meal shop owner apologized for his mistake and gave me a 50 % discount on my veg thali. |
